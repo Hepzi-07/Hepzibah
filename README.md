@@ -1,4 +1,4 @@
-# 👋 Hi there, I'm [Your Name]!
+# 👋 Hi there, I'm HEPZIBAH 
 
 🎓 3rd Year B.E. Computer Science student  
 💻 Passionate about Full-Stack Web Development  
